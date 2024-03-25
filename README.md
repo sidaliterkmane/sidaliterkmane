@@ -16,9 +16,9 @@ I'm a young developer based in Montreal (Canada), and I'm passionate about craft
 
 ## ✨ Fun Facts
 
-- I'm passionate about martial arts of all sorts (especially Kyokushin Karate and Muay Thai)
-- Recently discovered a strong interest for weightlifting and nutrition
-- I love sales and marketing
+- I'm passionate about martial arts of all sorts (especially Kyokushin Karate and Muay Thai) 🥊
+- Recently discovered a strong interest for weightlifting and nutrition 🏋️‍♂️ 🍽
+- I love sales and marketing 📈
 
 ## 📫 Contact
 
